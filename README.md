@@ -1,4 +1,4 @@
-### Hi there 👋
+I Will update it soon my Discord Yek#6171 ;3
 
 <!--
 **Yek-h/Yek-h** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
